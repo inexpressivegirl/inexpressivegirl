@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @inexpressivegirl
+- 👋 Hi, I’m @JahnaviAratlakota
 - 👀 I’m interested in Btech
 - 🌱 I’m currently learning CSE
 - 💞️ I’m looking to collaborate with brands
